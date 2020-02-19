@@ -6,7 +6,7 @@
 * +99899 831-96-60 3
 
 ### Summary
-##### To be a good woman programmer who can work effectively, qualitatively and most important to work with pleasure. One of the main goal is to improve gained knowledge and complement lacking skills. 
+##### To be a good woman programmer who can work effectively, qualitatively and most important to work with pleasure. One of the main goal is to improve gained knowledge and complement lacking skills. To learn cutting edge technologies is important for me in order to be a good specialist in the near future.
 
 ### Skills
 * Programming languages 
